@@ -1,9 +1,7 @@
-<p align="center">
-hello yuri enjoyers. Together we fight against @teamYAOI, united in purpose and unyielding in spirit until victory is OURS
-</p>
+## <p align=center> DO FOLLOW. YURI MUST WIN. </p>
 
 <p align="center">
-please do follow.. yuri must win
+greetings, yuri enjoyers. together, reunited, we fight against @teamYAOI; united in purpose and unyielding in spirit until victory is OURS. #TEAMYURI #MENAREBORING #WOMENKISSEACHOTHER
 </p>
 
 <p align="center">
