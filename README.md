@@ -1,5 +1,8 @@
 <p align="center">
 hello yuri enjoyers. Together we fight against @teamYAOI, united in purpose and unyielding in spirit until victory is OURS
+</p>
+
+<p align="center">
 please do follow.. yuri must win
 </p>
 
